@@ -1,1 +1,1 @@
-[TALLER DE DIAGRAMAS UML.pdf](https://github.com/user-attachments/files/23469267/TALLER.DE.DIAGRAMAS.UML.pdf)
+file:///C:/Users/Dainer/Documents/TALLER%20DE%20DIAGRAMAS%20UML.pdf
