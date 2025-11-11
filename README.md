@@ -1,1 +1,1 @@
-file:///C:/Users/Dainer/Documents/TALLER%20DE%20DIAGRAMAS%20UML.pdf
+https://drive.google.com/file/d/1KfTORVDBtzQAmtCN_ViGwKB0BHGNohgG/view?usp=sharing
